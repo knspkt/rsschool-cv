@@ -24,3 +24,5 @@ MA in Roman-Germanic Philology at BSU (Minsk).
 Rolling Scopes School online JS course.
 Sharing knowledge and volunteering at local Linux hub.
 
+**Languages:**
+Native Belarusian and Russian speaker, fluent English and Portuguese, medium Spanish and Polish, basic Dutch and German.
